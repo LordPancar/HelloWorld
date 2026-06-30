@@ -1,0 +1,1 @@
+Bölüme giriştiğimiz nokta
